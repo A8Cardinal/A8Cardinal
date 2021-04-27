@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @A8Cardinal
-- 👀 I’m interested in swimming
+- 👀 I’m interested in swimming and cycling!
 - 🌱 I’m currently learning coding!!
 - 💞️ I’m looking to collaborate on mathematical works~~
 - 📫 How to reach me: contact me on discord @monyu_04 (#5244)
