@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @A8Cardinal
-- 👀 I’m interested in swimming and cycling!
-- 🌱 I’m currently learning coding!! (especially python and ruby!)
+- 👀 I’m interested in coding!
+- 🌱 I’m currently learning cpp~
 - 💞️ I’m looking to collaborate on mathematical works~~
 - 📫 How to reach me: contact me on discord @monyu_04 (#5244)
 
